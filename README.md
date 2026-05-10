@@ -10,7 +10,9 @@ state <br>   If you wanna be my friend that’s fine tho! :3 <br>     transmale,
 <img width="1200" height="1200" alt="IMG_1098" src="https://github.com/user-attachments/assets/c83ea6be-a762-49ed-914e-d39bfdb7a855" />
 more active on discord, you can ask if u want. Ask about fandoms or drawings! we love to draw and chat. i wanna make a strawpage soon :>
 
+<img width="555" height="555" alt="IMG_0647" src="https://github.com/user-attachments/assets/2c631c3f-3a4b-4fe6-90f7-a69e05b240c8" />
 
+frequent fronters : andrew , ivan , two time , avery , and dandy . we are very split easy :< 
 
 ## 🌐 Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/Yoai_freak ) [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/ Musickitz) 

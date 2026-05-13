@@ -6,7 +6,7 @@ Haii I’m a hostless osdd sys named trickysystem <img width="500" height="500" 
  Not really looking for friends due to my mental 
 state <br>   If you wanna be my friend that’s fine tho! :3 <br>     transmale, lesboy , cupidromanic <br>    <img width="920" height="798" alt="IMG_1054" src="https://github.com/user-attachments/assets/ab300e9b-ebfb-4ca6-9b38-f1a8673c8b5b" />
 
-   our bday is on aug 22 <br>         bodily 13, black (Indian American).<br>             Most of us are taken by our partner.<br><br>  basic dni ; -12, 25+                  
+   our bday is on aug 22 <br>         minor,  black (Indian American).<br>             Most of us are taken by our partner.<br><br>  basic dni ; -12, 25+                  
    
    <img width="465" height="465" alt="IMG_1253" src="https://github.com/user-attachments/assets/a5ade755-50a6-4a7c-a986-5da6820fb1fe" />
 

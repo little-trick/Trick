@@ -1,5 +1,5 @@
 
-  last updated 5/11/26 -by lampert
+  last updated 5/13/26 -by noob
 
 Haii I’m a hostless osdd sys named trickysystem <img width="500" height="500" alt="IMG_1560" src="https://github.com/user-attachments/assets/5d50a624-88b5-424b-939d-5c40150062a3" />
  
